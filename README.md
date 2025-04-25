@@ -1,9 +1,1 @@
 # quantenbuch
-# quantenbuch
-# quantenbuch
-# quantenbuch
-# quantenbuch
-# quantenbuch
-# quantenbuch
-# quantenbuch
-# quantenbuch
